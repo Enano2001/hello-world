@@ -1,2 +1,2 @@
 # hello-world
-just another repoditory
+im new trying learn something so... wish good luck... i will need it -_-
